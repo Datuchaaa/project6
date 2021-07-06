@@ -1,5 +1,7 @@
          DAVIT VASHAKMADZE
-Georgia • 598734311 • vashaymadzedavit@gmail.com
+Georgia/kutaisi
+contact: • 598734311
+         • vashaymadzedavit@gmail.com
 
 2020 - present Markup Developer
 Freelancer
