@@ -1,6 +1,6 @@
          DAVIT VASHAKMADZE
 Georgia/kutaisi
-contact: • 598734311
+contact: • Tel: +995598734311
          • vashaymadzedavit@gmail.com
 
 2020 - present Markup Developer
